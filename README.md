@@ -1,0 +1,2 @@
+# baruku
+baru ini
